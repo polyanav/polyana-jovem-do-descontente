@@ -1,1 +1,0 @@
-# polyana-jovem-do-descontente
